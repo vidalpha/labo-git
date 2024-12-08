@@ -27,7 +27,7 @@ A bientôt 🥳
 
 ## Contributeurs
 
-- Vidalpha 🤓
+- [Vidalpha 🤓](./ignace-profil.md)
 
 
 © < Mon entreprise > Unamur, 2024
