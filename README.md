@@ -27,7 +27,7 @@ A bientôt 🥳
 
 ## Contributeurs
 
-- Moi et moi seul pour l'instant 🤓
+- Jean Dubois (jbubois07)
 
 
 © < Mon entreprise > Unamur, 2024
