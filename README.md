@@ -28,6 +28,7 @@ A bientôt 🥳
 ## Contributeurs
 
 - Vidalpha 🤓
+- Jean Dubois (jbubois07)
 
 
 © < Mon entreprise > Unamur, 2024
