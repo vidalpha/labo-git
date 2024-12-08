@@ -27,7 +27,7 @@ A bientôt 🥳
 
 ## Contributeurs
 
-- Moi et moi seul pour l'instant 🤓
+- Vidalpha 🤓
 
 
 © < Mon entreprise > Unamur, 2024
